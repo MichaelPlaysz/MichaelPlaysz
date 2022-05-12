@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming and coding
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ehehehehehhe19@gmail.com 2566583141
+- 📫 How to reach me ehehehehehhe19@gmail.com 
 
 <!---
 MichaelPlaysz/MichaelPlaysz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
