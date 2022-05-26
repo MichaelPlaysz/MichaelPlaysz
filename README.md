@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MichaelPlaysz
 - 👀 I’m interested in Gaming and coding
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning Coding 
+- 💞️ I’m looking to collaborate on youtube videos
 - 📫 How to reach me ehehehehehhe19@gmail.com 
 
 <!---
